@@ -1,0 +1,2 @@
+# zugxkg
+Daily digest notes
